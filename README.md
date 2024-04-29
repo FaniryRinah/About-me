@@ -9,4 +9,4 @@
 
 - ✍️ More about me : www.linkedin.com/in/faniry-ratsimanohatra-459b021ba
 -  
---> To the pleasure of exchanging and/or collaborating togeter <--
+--> To the pleasure of exchanging and/or collaborating together <--
