@@ -12,7 +12,7 @@
 
 📫 You can reach me at: ratsimanohatrafaniry@gmail.com
 
-✍️ More about me: LinkedIn
+✍️ More about me: https://www.linkedin.com/in/faniry-ratsimanohatra/
 
 --> 😊 Looking forward to exchanging ideas and/or collaborating together! <--
 
@@ -32,6 +32,6 @@
 
 📫 Vous pouvez me contacter à : ratsimanohatrafaniry@gmail.com
 
-✍️ En savoir plus sur moi : LinkedIn
+✍️ En savoir plus sur moi : https://www.linkedin.com/in/faniry-ratsimanohatra/
 
 --> 😊 Au plaisir d’échanger et/ou de collaborer ensemble ! <--
